@@ -9,6 +9,7 @@
 오디오와 분위기를 책임지고 있습니다 아주 '시도때도 없는' 사람이죠
 <br>
 매우 바쁘게 살아가고 돈은 언제나 없습니다
+<br>
 <img style="180px" src="https://stickershop.line-scdn.net/stickershop/v1/product/12189258/LINEStorePC/main.png;compress=true">
 
 ## 배우고 싶은 것
